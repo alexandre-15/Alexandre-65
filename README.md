@@ -1,3 +1,4 @@
-# e-mail para contato: britorodriguesalexandre7@gmail.com 
-# 📘 estudante 
-# 
+ E-mail para contato: britorodriguesalexandre7@gmail.com 
+
+ 📘 estudante 
+ 
